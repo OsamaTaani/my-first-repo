@@ -1,7 +1,8 @@
 # my-first-repo
 ## Osama Taani
 ---------------	
-22 years old , fresh graduated , content creator and **gamer** , pro *fps* player.
+22 years old , fresh graduated , content creator and __gamer__ , pro *fps* player.
+and today im ***working on my self to achieve my goals***.
 ---------------
 ## Planns for the future 
 1. Become a successful web page developer
