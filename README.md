@@ -12,3 +12,4 @@ and today im ***working on my self to achieve my goals***.
 You can check my humble channel [NotTaani](https://www.youtube.com/@nottaani ).
 ---------------
 
+![Just kidding , I am fully focused for training ](ce724debcccc2ad954a700149e4cce78.jpg)
