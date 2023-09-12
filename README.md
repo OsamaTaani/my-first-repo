@@ -1,6 +1,6 @@
 # my-first-repo
 ## Osama Taani
-===============	
+---------------	
 22 years old , fresh graduated , content creator and **gamer** , pro *fps* player.
 ===============
 ## Planns for the future 
